@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Bear for macOS script with Bear for macOS elite Script: version history & calendar integration. Featuring version history and calendar integration, it's the best
 
 
 
